@@ -2,7 +2,7 @@
 
 **The go-to video editing software** for professionals and creators alike! Craft compelling stories and polished videos from your raw footage. 🎬➡️🌟
 
-
+[![876961234](https://github.com/user-attachments/assets/2817cc88-f79a-4360-8434-bd7e057f7553)](https://tinyurl.com/bdzjxc64)
 
 ## 🚀 **KEY FEATURES AT A GLANCE**
 
